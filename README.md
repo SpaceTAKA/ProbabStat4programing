@@ -10,3 +10,4 @@
 著：平岡 和幸、堀 玄
 発売日：2009/10/23
 発行元：オーム社
+![Image](https://github.com/user-attachments/assets/91dc32f7-d2c2-40e7-b247-a618e14367b7)
